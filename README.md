@@ -1,4 +1,5 @@
 might be kinda quiet at times 
+--------------------------------------------------------
 i know a good handful of fandoms but my main ones are Marvel, Dc, and Sonic (not as big into it but still like it lots)
 you might recognise me from my shadow pony!
 
